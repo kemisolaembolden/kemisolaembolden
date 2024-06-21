@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kemisolaembolden
-- 👀 I’m interested in helping course creators and online entrprenueur create a converting sales funnel..
+- 👀 I’m interested in helping course creators and online entrprenueur manage their cousre platform..
 - 🌱 I’m currently learning to help my clients generate consistent sales
-- 💞️ I’m looking to collaborate on funnel design and marketing projects
+- 💞️ I’m looking to collaborate on funnel design, website dsign and marketing projects
 - 📫 How to reach me Kemisola Hassan on upwork
 - embolden Khem on X and Facebook
 - 😄 Pronouns: Khemi Sola
